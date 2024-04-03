@@ -7,4 +7,4 @@ Buna dayanarak ilerideki projelerimin,iş olanaklarımın AI üzerine olmasına 
 ## İletişim
 
 Projelerime bakarak herhangi bir konuda sağlık,finans vs iş vermek isteyen kişiler veya tam zamanlı işe almak isteyenler bana,
-metinumuttatli@hotmail.com   mailinden ulaşabilir. veya linkedln adresim www.linkedin.com/in/metin-umut-tatlı-348357283 den ulaşabilir.
+metinumuttatli@hotmail.com   mailinden ulaşabilir. veya linkedln adresim www.linkedin.com/in/metin-umut-tatlı1 den ulaşabilir.
